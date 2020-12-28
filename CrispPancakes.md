@@ -1,11 +1,11 @@
 ### Ingredients: 
-Sugar a bit less than 1/2 Cup
-1 Egg
-Vanilla Extract
-Yeast 1/2 Tsp
-Water 3-4 Tbs
-Flour 1/2 Cup
-Salt
+Sugar a bit less than 1/2 Cup  
+1 Egg  
+Vanilla Extract  
+Yeast 1/2 Tsp  
+Water 3-4 Tbs  
+Flour 1/2 Cup  
+Salt  
 
 ### Steps
 Add Eggs, Sugar
